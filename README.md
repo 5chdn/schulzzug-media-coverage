@@ -9,6 +9,7 @@ Schulzzug media coverage (excerpt):
 - [Bayerischer Rundfunk](http://www.br.de/nachrichten/schulzzug-onlinespiel-100.html)
 - [General Anzeiger](http://www.general-anzeiger-bonn.de/news/panorama/Entwickler-entfernen-Petry-aus-Schulzzug-article3513665.html)
 - [Berliner Morgenpost](http://www.morgenpost.de/politik/article210009421/Schulzzug-ueberfaehrt-Petry-Trump-und-Erdogan-nicht-mehr.html)
+- [N24/welt](https://www.welt.de/politik/deutschland/article163057114/Der-Schulzzug-ueberfaehrt-nicht-mehr-Petry-und-Trump.html)
 - [Berliner Zeitung](http://www.berliner-zeitung.de/politik/martin-schulz-der--schulzzug--laesst-digitale-petry-und-trump-durch-die-gegend-fliegen--26231950)
 - [Yahoo Deutschland](https://de.nachrichten.yahoo.com/martin-schulz-schulzzug-lässt-digitale-095522522.html)
 - [RP Online](http://www.rp-online.de/politik/deutschland/spd-pc-spiel-programmierer-entschaerfen-den-schulzzug-aid-1.6705137)
