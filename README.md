@@ -24,6 +24,7 @@ Schulzzug media coverage (excerpt):
 - [PietSmiet](https://youtube.com/watch?v=p0xuObKLegA)
 - [SPD](https://www.spd.de/aktuelles/detail/news/spd-hackathon-spdhack/10/03/2017/)
 - [Schulztools](https://schulztools.org/tools/schulzzug-the-game/)
+- [CDU](https://www.cdurlp.de/artikel/patrick-schnieder-makaberes-spd-spiel-geht-zu-weit)
 
 
 - [IKZ Online](http://www.ikz-online.de/politik/schulzzug-ueberfaehrt-petry-trump-und-erdogan-nicht-mehr-id210009421.html)
